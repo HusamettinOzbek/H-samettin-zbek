@@ -1,1 +1,0 @@
-# H-samettin-zbek
